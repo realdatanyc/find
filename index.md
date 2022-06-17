@@ -14,7 +14,9 @@
 ## searches
 #UES
 
-[1328 Lexington Avenue / 120 East 89]
+[Upper East Side up to $2,800](https://streeteasy.com/for-rent/ues/price:2200-2800%7Cbeds%3C=1%7Camenities:laundry?view=map)
+
+[1328 Lexington Avenue / 120 East 89](https://streeteasy.com/building/1328-lexington-avenue-new_york)
 
 [115 East 89th](https://streeteasy.com/building/115-east-89-street-new_york)
 
