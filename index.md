@@ -17,6 +17,8 @@
 
 [115 East 89th](https://streeteasy.com/building/115-east-89-street-new_york)
 
+[160 east 89](https://streeteasy.com/building/160-east-89-street-new_york)
+
 
 [Near NoHo Downtown up to $4400](https://streeteasy.com/for-rent/nyc/price:3000-4400%7Carea:158,113,162,107,106,157%7Cbeds%3C=1?view=map)
 
