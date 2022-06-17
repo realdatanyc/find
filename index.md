@@ -1,5 +1,8 @@
 ## FIND
 
+## generic
+[1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
+
 ## searches
 
 [Near NoHo Downtown up to $4400](https://streeteasy.com/for-rent/nyc/price:3000-4400%7Carea:158,113,162,107,106,157%7Cbeds%3C=1?view=map)
