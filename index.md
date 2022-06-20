@@ -5,6 +5,8 @@
 
 [RENT 1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
 
+[RENT 2 BR up to 4500 Downtown to UES](https://streeteasy.com/2-bedroom-apartments-for-rent/nyc/type:R%7Cprice:-4700%7Carea:115,158,113,116,146,133,141,122,130,132,142%7Camenities:laundry)
+
 [SALES Morningside Heights - all](https://streeteasy.com/for-sale/nyc/area:147?view=details&sort_by=price_asc)
 
 
