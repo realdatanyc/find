@@ -1,10 +1,11 @@
 ## FIND
 
 ## generic
-[1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
+[RENT 1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
 
-[1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
+[RENT 1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
 
+[SALES Morningside Heights - all](https://streeteasy.com/for-sale/nyc/area:147?view=details&sort_by=price_asc)
 
 
 
