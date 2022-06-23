@@ -1,6 +1,9 @@
 ## FIND
 
+[CG Kimaya and Mariana](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
+
 ## generic
+
 [RENT 1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
 
 [RENT 1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
