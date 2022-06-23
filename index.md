@@ -1,22 +1,22 @@
 ## FIND
 
-[CG Kimaya and Mariana - up to $5,5K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627,lincoln-square-ny-7641/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2&priceMin=4000&priceMax=5500)
+[1 CG Kimaya and Mariana - up to $5,5K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627,lincoln-square-ny-7641/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2&priceMin=4000&priceMax=5500)
 
-[CG Kimaya and Mariana - up to $6K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
+[2 CG Kimaya and Mariana - up to $6K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
 
 ## generic
 
-[RENT 1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
+[3 RENT 1 BR UWS - all](https://streeteasy.com/1-bedroom-apartments-for-rent/uws?sort_by=price_asc)
 
-[RENT 1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
+[4 RENT 1 BR UES - all](https://streeteasy.com/1-bedroom-apartments-for-rent/ues?sort_by=price_asc)
 
-[RENT 2 BR up to 4500 Downtown to UES](https://streeteasy.com/2-bedroom-apartments-for-rent/nyc/type:R%7Cprice:-4700%7Carea:115,158,113,116,146,133,141,122,130,132,142%7Camenities:laundry)
+[5 RENT 2 BR up to 4500 Downtown to UES](https://streeteasy.com/2-bedroom-apartments-for-rent/nyc/type:R%7Cprice:-4700%7Carea:115,158,113,116,146,133,141,122,130,132,142%7Camenities:laundry)
 
-[SALES Morningside Heights - all](https://streeteasy.com/for-sale/nyc/area:147?view=details&sort_by=price_asc)
+[6 SALES Morningside Heights - all](https://streeteasy.com/for-sale/nyc/area:147?view=details&sort_by=price_asc)
 
-[RENT 30 West 70th Street - all](https://streeteasy.com/building/30-west-70-street-new_york#tab_building_detail=3)
+[7 RENT 30 West 70th Street - all](https://streeteasy.com/building/30-west-70-street-new_york#tab_building_detail=3)
 
-[SE 200 West 58th Street](https://streeteasy.com/building/200-west-58-street-new_york)
+[8 SE 200 West 58th Street](https://streeteasy.com/building/200-west-58-street-new_york)
 
 ## MS Access / SharePoint
 [Share point lists in Access](https://support.microsoft.com/en-us/office/import-link-or-move-data-to-sharepoint-65bf7b03-74bf-445c-959a-24b7a401ddee#:~:text=Access%20opens%20the%20Get%20External,that%20you%20want%20to%20import.)
@@ -24,15 +24,15 @@
 ## searches
 #UES
 
-[Upper East Side up to $2,800](https://streeteasy.com/for-rent/ues/price:2200-2800%7Cbeds%3C=1%7Camenities:laundry?view=map)
+[UES 100 Upper East Side up to $2,800](https://streeteasy.com/for-rent/ues/price:2200-2800%7Cbeds%3C=1%7Camenities:laundry?view=map)
 
-[1328 Lexington Avenue / 120 East 89](https://streeteasy.com/building/1328-lexington-avenue-new_york)
+[UES 200 1328 Lexington Avenue / 120 East 89](https://streeteasy.com/building/1328-lexington-avenue-new_york)
 
-[115 East 89th](https://streeteasy.com/building/115-east-89-street-new_york)
+[UES 300 115 East 89th](https://streeteasy.com/building/115-east-89-street-new_york)
 
-[160 east 89](https://streeteasy.com/building/160-east-89-street-new_york)
+[UES 400 160 east 89](https://streeteasy.com/building/160-east-89-street-new_york)
 
-[222 East 84th Street](https://streeteasy.com/building/222-east-84-street-new_york/5d)
+[UES 500 222 East 84th Street](https://streeteasy.com/building/222-east-84-street-new_york/5d)
 
 
 [Near NoHo Downtown up to $4400](https://streeteasy.com/for-rent/nyc/price:3000-4400%7Carea:158,113,162,107,106,157%7Cbeds%3C=1?view=map)
