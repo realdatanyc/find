@@ -1,6 +1,8 @@
 ## FIND
 
-[CG Kimaya and Mariana](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
+[CG Kimaya and Mariana - up to $5,5K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627,lincoln-square-ny-7641/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2&priceMin=4000&priceMax=5500)
+
+[CG Kimaya and Mariana - up to $6K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
 
 ## generic
 
