@@ -18,9 +18,6 @@
 
 [8 SE 200 West 58th Street](https://streeteasy.com/building/200-west-58-street-new_york)
 
-## MS Access / SharePoint
-[Share point lists in Access](https://support.microsoft.com/en-us/office/import-link-or-move-data-to-sharepoint-65bf7b03-74bf-445c-959a-24b7a401ddee#:~:text=Access%20opens%20the%20Get%20External,that%20you%20want%20to%20import.)
-
 ## searches
 #UES
 
