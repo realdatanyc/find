@@ -1,8 +1,6 @@
 ## FIND
 
-[1 CG Kimaya and Mariana - up to $5,5K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627,lincoln-square-ny-7641/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2&priceMin=4000&priceMax=5500)
-
-[2 CG Kimaya and Mariana - up to $6K](https://www.corcoran.com/homes-for-rent/location/midtown-west-ny-c900009,hudson-yards-ny-1044016,hells-kitchen-ny-7636,east-village-ny-7627/regionId/1?bedMin=2&bedMax=2&bathMin=2&bathMax=2)
+[Studio - Condo in Chelsea, Hudson Yards Hell's Kitchen](https://streeteasy.com/for-rent/nyc/type:D1%7Cprice:2700-4000%7Carea:115,152,146?view=map)
 
 ## generic
 
