@@ -1,5 +1,7 @@
 ## FIND
 
+[1 BR 3000 to 4200 UWS](https://streeteasy.com/1-bedroom-apartments-for-rent/uws/price:3000-4200)
+
 [Studio - Condo in Chelsea, Hudson Yards, Hell's Kitchen](https://streeteasy.com/for-rent/nyc/type:D1%7Cprice:2700-4000%7Carea:115,152,146?view=map)
 
 [Studio Rental buildings in Chelsea, Hudson Yards, Hell's Kitchen](https://streeteasy.com/for-rent/nyc/type:R%7Cprice:2700-4000%7Carea:115,152,146%7Camenities:doorman,laundry?page=2&sort_by=price_desc)
