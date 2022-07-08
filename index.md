@@ -2,6 +2,8 @@
 
 [153 West 80th Street #5A](https://streeteasy.com/building/153-west-80-street-new_york/5a)
 
+[120 Garfield Place #D4](https://streeteasy.com/building/118-garfield-place-brooklyn/d4)
+
 [1 BR 3000 to 4200 UWS](https://streeteasy.com/1-bedroom-apartments-for-rent/uws/price:3000-4200)
 
 [Studios up to 4000 Chelsea to East Village](https://streeteasy.com/studios-for-rent/nyc/price:-4000%7Carea:115,117,146,133,130,106,113?view=map)
