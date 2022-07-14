@@ -2,6 +2,17 @@
 
 [UWS 69 to 89 - 1 BR to 4100](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA)
 
+[UWS 69 to 89 1 BR to 4100 - 2](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=2)
+
+[UWS 69 to 89 1 BR to 4100 - 3](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=3)
+
+[UWS 69 to 89 1 BR to 4100 - 4](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=4)
+
+[UWS 69 to 89 1 BR to 4100 - 5](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=5)
+
+
+
+
 [ES UWS 1 BR Lincoln Square elevator - up to $4k](https://streeteasy.com/1-bedroom-apartments-for-rent/lincoln-square/price:-4000%7Camenities:elevator)
 
 [153 West 80th Street #5A](https://streeteasy.com/building/153-west-80-street-new_york/5a)
