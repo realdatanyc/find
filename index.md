@@ -6,13 +6,7 @@
 
 [SB UWS 69 to 89 - 1 BR to 4100](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA)
 
-[SB UWS 69 to 89 1 BR to 4100 - 2](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=2)
-
-[SB UWS 69 to 89 1 BR to 4100 - 3](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=3)
-
-[SB UWS 69 to 89 1 BR to 4100 - 4](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=4)
-
-[SB UWS 69 to 89 1 BR to 4100 - 5](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA?page=5)
+[ES UWS 1BR 7/17](https://resourcecdn.azureedge.net/reporthtml/985f6c7226c14cab94f840c79fcb5b9b.html)
 
 
 
