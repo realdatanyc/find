@@ -4,6 +4,8 @@
 
 [ES - 1BR UES](https://streeteasy.com/1-bedroom-apartments-for-rent/ues/type:R%7Cprice:2500-3500?view=map)
 
+[ES - 1BR UES - elevator](https://streeteasy.com/1-bedroom-apartments-for-rent/ues/type:R%7Cprice:2900-3600%7Camenities:elevator?view=map)
+
 [Chelsea - studio 1 BR to 4100](https://streeteasy.com/for-rent/nyc/price:2500-4100%7Carea:115,146,163)
 
 [SB Chelsea - studio 1 BR to 4100](https://streeteasy.com/for-rent/nyc/type:D1%7Cprice:-4100%7Carea:115,146,163%7Cbeds%3C=1)
