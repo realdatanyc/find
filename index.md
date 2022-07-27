@@ -1,6 +1,6 @@
 ## FIND
 
-]CC Condo Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/type:D1%7Cprice:2500-3500)
+[CC Condo Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/type:D1%7Cprice:2500-3500)
 
 [CC Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/price:2500-3500)
 
