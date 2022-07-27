@@ -1,5 +1,11 @@
 ## FIND
 
+
+
+[CC Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/price:2500-3500)
+
+[CC 1 BR 2500 to 3500 UWS](https://streeteasy.com/1-bedroom-apartments-for-rent/uws/price:2500-3500)
+
 [Morningside Heights and Hamilton Heights SALE](https://streeteasy.com/for-sale/nyc/price:-5000000%7Carea:148,147)
 
 [Property Tax Page](https://www1.nyc.gov/site/finance/taxes/property.page)
@@ -12,13 +18,9 @@
 
 [SB Chelsea - studio 1 BR to 4100](https://streeteasy.com/for-rent/nyc/type:D1%7Cprice:-4100%7Carea:115,146,163%7Cbeds%3C=1)
 
-
 [SB UWS 69 to 89 - 1 BR to 4100](https://streeteasy.com/1-bedroom-apartments-for-rent/upper-west-side/price:-4200%7Cboundary:UWS%2068th%20to%2089th-_i%7DwFnwmbMsA::::EsDvSoAzDsAzDmAlEs@tEShFXzE~@xE%60B%60EfCpCdHlEzCtAfDr@hDbAhIbAbDPpIQlD%3FdIb@fDInDY%60Dq@tCuA%60BsDd@mLK%7DLaAmEyBcDsC%7DBwCsCaD_CuC%7BAaDqBuCuAuC%7DAsCgBeHgFsC%7DA_IaDsCuAcDkAaDeA)
 
 [ES UWS 1BR 7/17](https://resourcecdn.azureedge.net/reporthtml/985f6c7226c14cab94f840c79fcb5b9b.html)
-
-
-
 
 [ES UWS 1 BR Lincoln Square elevator - up to $4k](https://streeteasy.com/1-bedroom-apartments-for-rent/lincoln-square/price:-4000%7Camenities:elevator)
 
@@ -26,7 +28,6 @@
 
 [120 Garfield Place #D4](https://streeteasy.com/building/118-garfield-place-brooklyn/d4)
 
-[1 BR 3000 to 4200 UWS](https://streeteasy.com/1-bedroom-apartments-for-rent/uws/price:3000-4200)
 
 
 
