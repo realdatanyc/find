@@ -1,5 +1,7 @@
 ## FIND
 
+[PD 2BR 2BA UWS](https://streeteasy.com/2-bedroom-apartments-for-sale/uws/price:900000-1400000%7Cbaths%3E=2)
+
 [CC Condo Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/type:D1%7Cprice:2500-3500)
 
 [CC Studio BR 2500 to 3500 UWS](https://streeteasy.com/studios-for-rent/uws/price:2500-3500)
