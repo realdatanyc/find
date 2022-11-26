@@ -2,6 +2,8 @@
 
 [NYPL Real Estate Resources](https://www.nypl.org/node/5737)
 
+[Kaye Schiller Index](https://www.spglobal.com/spdji/en/index-family/indicators/sp-corelogic-case-shiller/sp-corelogic-case-shiller-metro-area/)
+
 [OneDrive synchronization (video)](https://www.youtube.com/watch?v=OP2mp8tAqes)
 
 [Window AC in NYC](https://www.cnbc.com/2018/07/26/ac-units-central-air-summer-window-new-york-america.html)
