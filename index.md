@@ -1,8 +1,10 @@
 ## FIND
 
+[OneDrive synchronization (video)](https://www.youtube.com/watch?v=OP2mp8tAqes)
+
 [Window AC in NYC](https://www.cnbc.com/2018/07/26/ac-units-central-air-summer-window-new-york-america.html)
 
-[Central Air Conditioning (video)(https://www.youtube.com/watch?v=uElUCGNb6SY)
+[Central Air Conditioning (video)](https://www.youtube.com/watch?v=uElUCGNb6SY)
 
 [Pdf Filler Tools](https://www.youtube.com/user/PDFfiller)
 
