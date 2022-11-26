@@ -2,7 +2,7 @@
 
 [NYPL Real Estate Resources](https://www.nypl.org/node/5737)
 
-[Kaye Schiller Index](https://www.spglobal.com/spdji/en/index-family/indicators/sp-corelogic-case-shiller/sp-corelogic-case-shiller-metro-area/)
+[Case Schiller Index](https://www.spglobal.com/spdji/en/index-family/indicators/sp-corelogic-case-shiller/sp-corelogic-case-shiller-metro-area/)
 
 [OneDrive synchronization (video)](https://www.youtube.com/watch?v=OP2mp8tAqes)
 
