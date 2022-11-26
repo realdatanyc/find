@@ -1,5 +1,7 @@
 ## FIND
 
+[NYPL Real Estate Resources](https://www.nypl.org/node/5737)
+
 [OneDrive synchronization (video)](https://www.youtube.com/watch?v=OP2mp8tAqes)
 
 [Window AC in NYC](https://www.cnbc.com/2018/07/26/ac-units-central-air-summer-window-new-york-america.html)
